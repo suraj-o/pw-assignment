@@ -1,0 +1,1 @@
+[Link me to go on Design Clones](https://ashish473797.github.io/Design-Clones)
